@@ -1,0 +1,6 @@
+- ▲ I AM @ACRO-FEIN.
+- ∝ I’m interested in ...
+- Ψ I’m currently learning BASIC MUMBER THEORY/CODING/PHYSICS/CHEMISTRY/ADVANCED MATHEMATICS/ SEARCHING FOR 52ND MERSENNE PRIME/PROPERTIES OF PASCAL'S TRIANGLE(BINOMIAL THEOREM/EXPANSION), LEIBNIZ TRIANGLE, SIERPINSKI TRIANGLE, ETC.
+- λ I’m looking to collaborate on BASIC NUMBER THEORY/PHYSICS/ADVANCED MATHEMATICS.
+- ϴ How to reach me- GMAIL- F.E.I.N.MAIL4FEINSTEIN@GMAIL.COM DISCORD-feinbeme_89862
+- Ω Fun fact: .. / .- -- / .- / .... .. --. .... / ... -.-. .... --- --- .-.. / ... - ..- -.. . -. -
